@@ -10,7 +10,7 @@ tell you about now.
 
 The IELTS exam is jointly(共同地，联合地) owned by three partners: the British Council(英国文化委员会), which is based in London, but has offices all over the world, IDP (an education organisation(组织，机构，团体)), and a department of Cambridge University called Cambridge English Language Assessment(评估). They’re the ones who basically write and check the questions in the tests, and I want to explain more about what that work actually involves(包含;使参与). 
 
-Writing teams work in various(多方面的;许多的;) countries: the UK has one team, Australia has another… These writers are then asked, usually twice a year, to produce a number of tasks for the paper they are working on, Writing, Reading or whichever. They need to follow detailed guidelines(指导原则) to ensure that the topic they write about is suitable, that the text is exactly the length that it’s supposed to be, and so on.  
+Writing teams work in various(多方面的;许多的;) countries: the UK has one team, Australia has another… These writers are then asked, usually twice a year, to produce a number of tasks for the paper they are working on, Writing, Reading or whichever. They need to follow detailed guidelines(指导原则) to ensure that the topic they write about is suitable, that the text is exactly(确切地;精确地;) the length that it’s supposed to be, and so on.  
 
 Once the writers have sent the material they’ve written in to Cambridge, a ‘pre-editing’ meeting is
 held. This will involve the assessment manager (a member of staff at Cambridge) and also the person
