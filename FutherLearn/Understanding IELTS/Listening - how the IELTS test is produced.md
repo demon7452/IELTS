@@ -17,21 +17,14 @@ held. This will involve the assessment(评估) manager (a member of staff at Cam
 
 The writers then rewrite and resend their questions, and then a second meeting is held – the editing
 meeting. This has the purpose of getting the material ready, editing it, so it can be used in actual
-tests, and also it’s a way of making sure that anyone who writes the test gets regular training.  
+tests, and also it’s a way of making sure that anyone who writes the test gets regular(有规律的) training.  
 
 This is the time when the questions are used with actual students, but they’re not the ‘real’ IELTS
-tests yet. The tests are just being checked, and this is called pre-testing. The tests are all printed; the
-listening tests are recorded with professional actors. And then groups of students take the test, so
-they get useful exam practice. And Cambridge get data they can use to check the test, and measure
-how difficult it actually is, and see which questions still need changing.  
+tests yet. The tests are just being checked, and this is called pre-testing. The tests are all printed; the listening tests are recorded with professional actors. And then groups of students take the test, so
+they get useful exam practice. And Cambridge get data they can use to check the test, and measure(测量;估量) how difficult it actually is, and see which questions still need changing.  
 
-All the questions that have gone through these stages are then stored – this is known as ‘banking’,
-and Cambridge English Language Assessment use software which they created themselves to record
-information about the task, such as the topic, the gender and accent in Listening tasks, and so on.
-Now, when a student takes an IELTS test, the final score they get is a ‘band’, like 6 point 5 or 7, up to
-a maximum of 9. But the statistics people need to decide how many correct answers will get which
-IELTS band score, because that will be slightly different for each test. The information from the pretests
-is useful for this, in a process that’s known as standards fixing.  
+All the questions that have gone through these stages(阶段;舞台;) are then stored – this is known as ‘banking’,and Cambridge English Language Assessment use software which they created themselves to record
+information about the task, such as the topic, the gender(性别;) and accent(口音;重音;) in Listening tasks, and so on.Now, when a student takes an IELTS test, the final score they get is a ‘band’, like 6 point 5 or 7, up to a maximum of 9. But the statistics(统计) people need to decide how many correct answers will get which IELTS band score, because that will be slightly(轻微地) different for each test. The information from the pretests is useful for this, in a process that’s known as standards fixing(固定).  
 
 So you can see that a lot of work goes into making and checking the IELTS tests, because it’s really
 important that every test is fair and accurate. Anyway, I wish you all the best for preparing for your
