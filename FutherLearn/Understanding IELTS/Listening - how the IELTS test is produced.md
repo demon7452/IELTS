@@ -13,10 +13,7 @@ The IELTS exam is jointly(共同地，联合地) owned by three partners: the Br
 Writing teams work in various(多方面的;许多的;) countries: the UK has one team, Australia has another… These writers are then asked, usually twice a year, to produce a number of tasks for the paper they are working on, Writing, Reading or whichever. They need to follow detailed guidelines(指导原则) to ensure that the topic they write about is suitable, that the text is exactly(确切地;精确地;) the length that it’s supposed to be, and so on.  
 
 Once the writers have sent the material they’ve written in to Cambridge, a ‘pre-editing’ meeting is
-held. This will involve the assessment manager (a member of staff at Cambridge) and also the person
-known as the chair, who is the team leader in charge of that particular paper. They discuss all the
-texts that have been written and sent in, and check that these and the answers are all clear. If
-everything is satisfactory, then they will produce feedback in writing for the writer, asking for certain  changes to be made. This is what happens in most cases. But there are occasions when there are too many probelms with a task, and if it’s difficult to see how it could be made to work, then the task
+held. This will involve the assessment(评估) manager (a member of staff at Cambridge) and also the person known as the chair, who is the team leader in charge of(主管，负责;) that particular paper. They discuss all the texts that have been written and sent in, and check that these and the answers are all clear. If everything is satisfactory(令人满意的;符合要求的;), then they will produce feedback(反馈;) in writing for the writer, asking for certain  changes to be made. This is what happens in most cases. But there are occasions when there are too many probelms with a task, and if it’s difficult to see how it could be made to work, then the task
 actually gets rejected, although the writer will always be told exactly why this was the case.  
 
 The writers then rewrite and resend their questions, and then a second meeting is held – the editing
